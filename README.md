@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @XAYWOX.
-- I want to update this game regularly.
+- I want to update my games regularly.
