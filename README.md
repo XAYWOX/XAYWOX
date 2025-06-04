@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @XAYWOX.
+- I want to update this game regularly.
